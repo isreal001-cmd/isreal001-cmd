@@ -5,4 +5,4 @@
 📊 I turn raw sequencing data into actionable insights <br/>
 🔬 I research cancer genomics & precision medicine <br/>
 <br/>
-Let's connect → [linkedin.com/in/isrealoluwafemi-b174461b0
+Let's connect → [linkedin.com/in/isrealoluwafemi-b174461b0]
